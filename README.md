@@ -1,2 +1,3 @@
 # Starnlinkz
-Prodigy Cheats
+Prodigy Cheat
+!!DO NOT USE ON MAIN ACCOUNT!!
